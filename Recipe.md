@@ -4,7 +4,7 @@ Step2 - Add 3 chopped onions. Saute until golden brown.
 Step3 - Add 2 chopped tomatoes. Saute.
 Step4 - Add 4-5 dry red chillies.
 Step5 - Add salt as per taste. Saute well.
-Step6 - Let onions and tomatoes cool down.
+Step6 - Let the prepared mixture cool down.
 Step7 - Put this in a mixer grinder and grind it by adding a little water. Make a thick Mixture.
 Step8 - In a pan add 2 to 3 tablespoons of butter 
 Step9 - Add 2 to 3 tablespoons of red chilli powder.
